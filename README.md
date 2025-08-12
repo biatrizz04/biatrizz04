@@ -1,4 +1,4 @@
-# Sou estudante 👋🏻
+# Sou a Bia 👋🏻
 ## Beatriz Teixeira Garcia 
 ### 1A
 
@@ -9,7 +9,7 @@ Coisas sobre mim:
 
 - Eu gosto de rosa 🩷
 - Amo comer e dormir 👧
-- Eu estudo um instrumento 
+- Eu estudo um instrumento 🎹
 - 
 - 💬 Ask me about ...
 - 📫 How to reach me: ...
