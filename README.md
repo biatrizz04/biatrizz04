@@ -10,9 +10,9 @@ Coisas sobre mim:
 - Eu gosto de rosa 🩷
 - Amo comer e dormir 👧
 - Eu estudo um instrumento 🎹
-- 
-- 💬 Ask me about ...
-- 📫 How to reach me: ... 
-- 😄 Pronouns: ...
+- Gosto de dançar
+- Pronomes ela dela
+- Moro atualmente em maringa
+- Tenho tres 1 irmao e 2 irmas😄
 - ⚡ Fun fact: ...
 ![](https://pin.it/59GWSFuqK)
