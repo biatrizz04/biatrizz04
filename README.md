@@ -13,6 +13,6 @@ Coisas sobre mim:
 - Gosto de dançar
 - Pronomes ela dela
 - Moro atualmente em maringa
-- Tenho tres 1 irmao e 2 irmas😄
-- ⚡ Fun fact: ...
+- Tenho 1 irmao e 2 irmas😄
+  🇧🇷
 ![](https://pin.it/59GWSFuqK)
